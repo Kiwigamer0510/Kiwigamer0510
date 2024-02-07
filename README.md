@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Kiwigamer0510
+- 👀 I’m interested in Coding, Drawing, Minecraft, and more!
+- 🌱 I’m currently learning Java code, minecraft modding
+- 📫 How to reach me feel free to send me DM on discord randomkiwibird
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I have 19 animals in total and dont live on a farm <3
